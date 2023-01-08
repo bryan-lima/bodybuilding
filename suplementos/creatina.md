@@ -4,6 +4,9 @@
 
 _Fonte: [Reels do Instagram - @larissaarrudanutri](https://www.instagram.com/reel/Cky4nhSgQgK/?utm_source=ig_web_copy_link)_
 
+Caso o link acima esteja indisponível, acesse o vídeo através do link secundário:<br>
+[Saiba quais marcas de CREATINA foram reprovadas - Segundo laudo feito pela ABENUTRI](https://drive.google.com/file/d/1dc-9ih3mKBSyIO8RJOjTHwBLH8ZAS0M3/view?usp=share_link)<br>
+
 Anvisa permite uma margem de erro de até 20%.
 
 Exemplo: se um produto informa que em uma determinada dose possui 3g de creatina mas na realidade possui 20% menos, ainda está dentro dos parâmetros da Anvisa e portanto é uma creatina aprovada pelo órgão.
