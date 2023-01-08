@@ -25,7 +25,7 @@ Para melhor visualização desse teste, veja os vídeos do YouTube abaixo:<br>
 
 Caso o link do Shorts esteja indisponível, acesse o vídeo através do link secundário: [CREATINA FALSIFICADA - Teste Caseiro](https://drive.google.com/file/d/1_COrFwkPXgmy3bJlIAQD-uMxBQJhh6wA/view?usp=share_link)<br>
 
-**Vídeo YouTube:** [TESTE DE IODO COM CREATINA ADULTERADA](https://youtu.be/6z9CQ_iCpUc)<br>
+**Vídeo YouTube:** [TESTE DE IODO COM CREATINA ADULTERADA](https://youtu.be/6z9CQ_iCpUc) (contém teste com creatina adulterada, no qual a cor fica preta)<br>
 
 A imagem abaixo foi extraída do Shorts do YouTube (primeiro link acima):
 
